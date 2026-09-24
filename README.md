@@ -9,3 +9,4 @@ i love bothering the supercell staff guys and yea anooying the absolute crap out
 <img width="99" height="56" alt="Untitled107_20260922183720" src="https://github.com/user-attachments/assets/9288380c-b077-462e-b1bd-b0c138c4e010" />
 <img width="99" height="56" alt="Untitled107_20260922183624" src="https://github.com/user-attachments/assets/cc9fc8c4-b1a0-4312-bc85-bea9dd43d59f" />
 <img width="99" height="56" alt="Untitled107_20260922183551" src="https://github.com/user-attachments/assets/8f41193f-8096-42d1-84af-872c3431f7bb" />
+<img width="99" height="56" alt="stamp 7" src="https://github.com/user-attachments/assets/e427ef06-4f93-47ed-a06f-369bb11a5f07" />
