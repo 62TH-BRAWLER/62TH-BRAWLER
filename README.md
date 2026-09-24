@@ -21,4 +21,6 @@ i love bothering the supercell staff guys and yea anooying the absolute crap out
 
 ⛔ = doing stuff . busy 
 
-i dont interact first btw !! please read strawpage(s) before yu interact or friend .:specifically the dragontamer one 
+i dont interact first btw !! 
+
+please read strawpage(s) before yu interact or friend .:specifically the dragontamer one 
