@@ -20,7 +20,7 @@ i love bothering the supercell staff guys and yea anooying the absolute crap out
  
  <img width="1620" height="597" alt="Untitled158_20260925210332" src="https://github.com/user-attachments/assets/81e841db-c27e-4405-bf4b-b81bbb9a8f55" />
 
- #ill assume you’re from the pony game !
+ # ill assume you’re from the pony game !
  
 <img width="20" height="20" alt="IMG_1138" src="https://github.com/user-attachments/assets/e527654f-5a5e-4db7-a1e9-814ae74f89ad" />
 ;🟢+💬 =dont be shy and poke the bear😂 ; feel free to interact 
