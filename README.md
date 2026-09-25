@@ -1,4 +1,9 @@
 ![Visitors](https://api.visitorbadge.io/api/visitors?path=https%3A%2F%2Fgithub.com%2F62TH-BRAWLER&label=%E2%80%A7%CB%9A%20%EA%A7%81%F0%9F%8E%AD%F0%9F%8D%AC%20%E0%AD%AD%20%CB%9A.%20%E1%B5%8E%E1%B5%8E%20special%20ones&labelColor=%23ff5569&countColor=%23e3268a&style=flat&labelStyle=upper)
+<img width="56" height="18" alt="IMG_0495" src="https://github.com/user-attachments/assets/b9c37578-1d9d-4fbc-a917-68dc8253b7d7" />
+<img width="51" height="18" alt="IMG_1146" src="https://github.com/user-attachments/assets/0041b342-4b9a-47cc-8488-cee8561fc81c" />
+<img width="94" height="20" alt="IMG_1147" src="https://github.com/user-attachments/assets/dd610467-79ec-4591-8462-7a8c0acfd4ba" />
+
+
 <img width="768" height="160" alt="Untitled160_20260925210954" src="https://github.com/user-attachments/assets/af57348e-19b4-4679-9256-51a224bf4c5c" />
 
 
